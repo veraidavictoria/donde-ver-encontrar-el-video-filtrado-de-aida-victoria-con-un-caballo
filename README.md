@@ -2,7 +2,13 @@
 
 Recientemente, las redes sociales se han convertido en el centro de atención debido a una polémica que involucra a Aida Victoria Merlano, una destacada creadora de contenido y figura pública venezolana.
 
-En el centro de la controversia se encuentra un rumor acerca de un supuesto video filtrado que, según diversos comentarios en línea, muestra a Merlano en compañía de un caballo.
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
 
 Este rumor ha desencadenado una serie de reacciones entre los usuarios, quienes han convertido el tema en una tendencia candente, aumentando las búsquedas en múltiples plataformas digitales.
 
